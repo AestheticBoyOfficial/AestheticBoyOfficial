@@ -5,7 +5,7 @@
 - 📫 How to reach me
 - My Insta:(https://www.instagram.com/aestheticboyofficial2.0?igsh=MW45cDlzaXFqOTJkMw==) and
 - FB:https://www.facebook.com/share/19ZCUjEztS/
-- 😄 Pronouns: He/His
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: Everything was Fun...
 
 <!---
